@@ -11,15 +11,15 @@ If you plan to participate in the class, buying your child's robot would greatly
 
 
 ### Class Timings
-**7/19** 3-4:30pm          First Day of Class
+**7/26** 3-4:30pm          First Day of Class
 
-**7/20** 3-4:30pm          Class
+**7/27** 3-4:30pm          Class
 
-**7/21** 3-4:30pm          Class
+**7/28** 3-4:30pm          Class
 
-**7/22** 3-4:30pm          Class
+**7/29** 3-4:30pm          Class
 
-**7/23** 3-4:30pm          Final Day of Class
+**7/30** 3-4:30pm          Final Day of Class
 ### Important links
 Gofundme page: https://www.gofundme.com/f/help-buildabot-purchase-robots-for-a-class
 
