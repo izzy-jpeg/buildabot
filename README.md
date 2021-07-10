@@ -23,4 +23,4 @@ If you plan to participate in the class, buying your child's robot would greatly
 ### Important links
 Gofundme page: [https://www.gofundme.com/f/help-buildabot-purchase-robots-for-a-class](https://www.gofundme.com/f/help-buildabot-purchase-robots-for-a-class)
 
-Google Forms Sign Up Sheet: [https://docs.google.com/forms/d/e/1FAIpQLSdZ7UULb7OL1P81rIjk9xW8O48_G20jNy3NCYam8KLrySe55A/viewform?usp=sf_link](https://www.gofundme.com/f/help-buildabot-purchase-robots-for-a-class)
+Google Forms Sign Up Sheet: [https://docs.google.com/forms/d/e/1FAIpQLSdZ7UULb7OL1P81rIjk9xW8O48_G20jNy3NCYam8KLrySe55A/viewform?usp=sf_link](https://docs.google.com/forms/d/e/1FAIpQLSdZ7UULb7OL1P81rIjk9xW8O48_G20jNy3NCYam8KLrySe55A/viewform)
